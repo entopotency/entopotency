@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @entopotency
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on causing the end of all human civilization
 - 📫 How to reach me robynrangeblaster@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: transdgenter
