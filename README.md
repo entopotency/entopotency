@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on causing the end of all human civilization
-- 📫 How to reach me robynrangeblaster@gmail.com
+- 📫 How to reach me robynrangeblaster@gmail.com or entopotency on discord
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: transdgenter
 
